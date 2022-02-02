@@ -1,4 +1,3 @@
-# PORTRAIT-BACKUP-12-2021
+PORTRAIT BACKUP
 
-#Absolute balls
-#Here's 600+ portraits I made
+Absolute balls, here's 600+ portraits I made
